@@ -1,2 +1,9 @@
-# csdc
-jxl jalc
+- ur mom
+- lol
+- made by gameralex
+- Im dumb
+- dont stop
+- yes
+- yes
+- yes
+- yes
